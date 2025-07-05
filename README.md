@@ -1,4 +1,4 @@
-              ₊𖦹 . 🎧 ° 🎸 ₊˚
+             ₊𖦹 . 🎧 ° 🎸 ₊˚
 
  ![1000006856](https://github.com/user-attachments/assets/4b88ebba-718f-464d-861d-ba01c72d539f)
 

@@ -1,6 +1,6 @@
               ₊𖦹 . 🎧 ° 🎸 ₊˚
 
-![1000006881](https://github.com/user-attachments/assets/2c0189b9-f187-4986-b1df-a52775a158d1)
+ ![1000006856](https://github.com/user-attachments/assets/4b88ebba-718f-464d-861d-ba01c72d539f)
 
 Hey there!! Ash / Sten here!!
 𝓐𝓼𝓴 𝓶𝔂 𝓯𝓸𝓻 𝓶𝔂 𝓼𝓸𝓬𝓲𝓪𝓵𝓼, 𝓲𝓯 𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓮𝓭 :))

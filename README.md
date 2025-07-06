@@ -14,12 +14,14 @@ Hey there!! Ash / Sten here!!
 [𝓒.𝓐𝓘](https://character.ai/profile/ashieluviess)
 
 
-My main fandoms are (in pt) :
+An IMMEDIATELY please interact with me :
 
 [Haikyu!!](https://haikyuu.fandom.com/wiki/Haikyuu!!_Wiki)
-
+—
 [Blue Lock](https://bluelock.fandom.com/wiki/Blue_Lock_Wiki)
-
+—
 [My Hero Academia](https://myheroacademia.fandom.com/wiki/My_Hero_Academia_Wiki)
-
+—
 [Alien Stage](https://alienstage.fandom.com/wiki/ALIEN_STAGE_Wiki)
+—
+[Alice In Borderland](https://aliceinborderland.fandom.com/wiki/Alice_in_Borderland_Wiki)
